@@ -4,3 +4,5 @@ bububb
 tolong koreksi aku bubuub
 
 ciapppp
+
+ngekk, woi mau makanan dong
